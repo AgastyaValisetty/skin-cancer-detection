@@ -1,0 +1,1 @@
+Training Log: https://docs.google.com/spreadsheets/d/1d3hyrr62zvX9IrBoS8nffWX95bMgFMGTIKm9hpx2g6g/edit?usp=sharing
